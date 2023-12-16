@@ -1,0 +1,1 @@
+JetBrains are you okay? What the hell is the icon of the IDEA CE 2023.3+ on MacOS
